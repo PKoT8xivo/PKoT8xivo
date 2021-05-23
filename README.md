@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @PKoT8xivo
 - 👀 I’m interested in making the world a better place for humanity and all.
 - 🌱 I’m currently learning Python then blockchain.
-- 💞️ I’m looking to collaborate on a project that can possibly change how we live.
+- 💞️ I’m looking to create the future of gaming... like SAO O.O
 - 📫 How to reach me ... email 3volv8xi5t3nc3@gmail.com
 
 <!---
